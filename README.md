@@ -5,3 +5,4 @@ Ariel Proaño mi pasatiempo es ver series
 Jordan Delgado - Mi pasatiempo favorito es jugar futbol
 =======
 Anthony Quinatoa - Mi pasatiempo es jugar videojuegos.
+El código nos une, los conflictos nos fortalecen
